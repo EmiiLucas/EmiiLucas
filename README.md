@@ -1,1 +1,1 @@
-Live on pumpfun - BN4JRPDFCY1mQ2512mUWe7x4zLQevSn8aq3QTuPtpump
+Live on kickstart - DEHeW7MG3eomgZiy3MgomQH5RjGtS7DaoLaq3TqBjda8
