@@ -1,3 +1,3 @@
-Live on kickstart - Bjvs3ZA3PdRci9qhwU1NmcrDabNsErtQW7skgqPtTe7C
+Live on kickstart - F3j4fakim6R8THtdxRUTBbD95Swdv9z4ymAt6dsykT4y
 
-CA - qgbQnaLHvXckeaRV1tQum9jrLrzApasMZ5yWzWvEASY
+https://x.com/getzaroai
